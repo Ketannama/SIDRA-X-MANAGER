@@ -1,12 +1,12 @@
  [━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「™°‌ 🫧 SIDRA 𓃭🇨𝐇𝐀𝐓 𝐁𝐎𝐓 ⃟⛦⃕͜༆」──
+    ──「™°‌ 🫧 �𝕒𝕣𝕜 𝕩 𝕞𝕦𝕤𝕚𝕔༆」──
 </h2>
 
 
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 🫧 SIDRA 𓃭🇨𝐇𝐀𝐓 𝐁𝐎𝐓 ⃟⛦⃕͜༆](https://t.me/indianlok)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 🫧 �𝕒𝕣𝕜 𝕩 𝕞𝕦𝕤𝕚𝕔༆](https://t.me/under_wear_here)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 
@@ -14,7 +14,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 🫧 SIDRA
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://graph.org/file/79b2347e9834e02510895.jpg">
+  <img src="https://telegra.ph/file/370d4b075f9ad5f03ab8e.jpg">
 </p>
 
 <p align="center">
